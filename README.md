@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @unit-69
 - 👀 I’m interested in Coding lol
-- 🌱 I’m currently learning, Python, HTML and Java
+- 🌱 I’m currently learning; HTML/CSS/Javascript, Python and Java
 - 💞️ I’m looking to collaborate on Non at the moment
 - 📫 How to reach me ...Not yet
 - 😄 Pronouns: Gander Fluid
