@@ -5,8 +5,7 @@
 - 📫 How to reach me: ...Not yet
 - 😽 Pronouns: Gender Fluid
 - ⚡ Fun fact: ...Meow
-- 🩷『----------------------------------------
-             I am Me
+- 🩷『 I am Me
 
 
                 Yahmiah~2023』
