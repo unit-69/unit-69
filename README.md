@@ -5,7 +5,7 @@
 - 📫 How to reach me: ...Not yet
 - 😽 Pronouns: Gender Fluid
 - ⚡ Fun fact: ...Meow
-- 🩷『               
+- 🩷『----------------------------------------
              I am Me
 
 
